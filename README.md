@@ -1,1 +1,1 @@
-# mindplex
+# personal page
